@@ -1,0 +1,1 @@
+Vesen meğ collbas şetta er hérna í bili
